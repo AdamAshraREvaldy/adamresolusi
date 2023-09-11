@@ -1,0 +1,2 @@
+# adamresolusi
+resolusi
